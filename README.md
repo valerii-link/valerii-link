@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Valerii
+- 😎 I'm fixing Humanity
