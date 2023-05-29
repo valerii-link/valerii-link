@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Valerii
-- 😎 I'm fixing Humanity
+👋 Hi, I’m Valerii <br />
+😎 I'm fixing Humanity
