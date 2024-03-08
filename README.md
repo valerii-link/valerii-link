@@ -1,2 +1,2 @@
 👋 Hi, my name is Valerii <br />
-😎 I'm fixing homo sapiens kind
+😎 I'm truth teller and good vibes supporter
