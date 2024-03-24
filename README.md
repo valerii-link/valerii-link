@@ -1,2 +1,2 @@
 👋 Hi, my name is Valerii <br />
-😎 I'm truth teller and good vibes supporter
+😎 I'm a truth-teller and good vibes supporter
